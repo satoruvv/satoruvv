@@ -3,7 +3,7 @@
 </p> 
 
 <p align="center">
-  <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_ad742677b37be4915307d8adff1b9d60_c0e379b4_400.webp">
+  <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_de747ae57d54e3092a2f919c5dab680d_70c7847c_640.png">
 </p> 
 
 <p>
@@ -18,8 +18,10 @@ $${\color{#67A28F}stillㅤworkingㅤonㅤlinks,ㅤpleaseㅤbeㅤpatientㅤ(,,>�
 </p>
 
 <p align="center">
-  <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_de747ae57d54e3092a2f919c5dab680d_70c7847c_640.png">
+  <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_ad742677b37be4915307d8adff1b9d60_c0e379b4_400.webp">
 </p> 
+
+$${\color{#B6B8B9}graphicsㅤcredㅤ=ㅤ@diveinityㅤonㅤtumblr}$$
 
 <p align="center">
   <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_98497e56cd0e383dae1a77495c68002c_7b52cd72_640.png">
