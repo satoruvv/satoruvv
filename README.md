@@ -15,10 +15,6 @@ $${\color{#B6B8B9}introject}$$
 
 $${\color{#67A28F}stillㅤworkingㅤonㅤlinks,ㅤpleaseㅤbeㅤpatientㅤ(,,>ヮ<,,)}$$
 
-<p align="center">
-  <img src="(https://file.garden/alqzWtqplE9QfqIP/tumblr_98497e56cd0e383dae1a77495c68002c_7b52cd72_640.png)[https://pronouns.cc/@satrouu]">
-</p> 
-  
 </p>
 
 <p align="center">
