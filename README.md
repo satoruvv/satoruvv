@@ -9,7 +9,7 @@
 <p>
   $${\color{#B6B8B9}satoruㅤgojo}$$
 
-$${\color{#67A28F}seventeenㅤ(inㅤsys)ㅤ✚ㅤheㅤ╱ㅤhim}$$
+$${\color{#67A28F}sixteenㅤ(bodily)ㅤ✚ㅤheㅤ╱ㅤhim}$$
 
 $${\color{#B6B8B9}introject}$$
 
